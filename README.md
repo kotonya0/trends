@@ -13,4 +13,6 @@ And just like that disco’s not dead. The wide collar favored by the Studio 54 
 Crochet is getting a cool update come spring. Think ultra-feminine dresses, polished suiting, and eveningwear that feels modern with a special touch of Grandma’s handmade crochet. As the fashion industry looks for ways to become more sustainable, there’s something special about a “trend” that embraces a slow, handmade technique that can be passed down generation after generation—à la that treasured family heirloom that lasts forever.
 
 ### Some Like It Hot Pants
-![Branching]
+![Branching](nfdndf.jpg)
+
+Who wears short shorts? A lot of us. Hot pants staged a triumphant comeback on the spring 2020 runways—from itty bitty knit shorts at Hermès and Ferragamo to denim cutoffs at Rag & Bone and spandex at Brandon Maxwell. For those who'd rather ease into Daisy Duke status, Chanel styled the look with black tights.
